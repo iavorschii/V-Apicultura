@@ -1,0 +1,2 @@
+# V-Apicultura
+Acest website este realizat în cadrul competiției ,,Tekwill Junior Ambassadors,,în cadrul proiectului ,,Tekwill în fiecare Școală,,.Ideea a venit imediat,deoarece această afacere se dezvoltă în satul nostru natal ,,Voloave,,.Ne-a făcut o deosebită plăcere să creăm acest website .Doamna a fost nespus de bucuroasă de propunerea noastră de a crea acest website .Mulțumim echipa ,,Tekwill în fiecare Școală,, despre  această oportunitate.
